@@ -11,7 +11,7 @@ I am actively cultivating expertise in process optimization, case analysis, and 
 
 ## Multilingual Proficiency
 A global mindset backed by a diverse linguistic toolkit:
-- 🇬🇧 **English:** Upper-Intermediate
+- 🇬🇧 **English:** Upper-Intermediate (B2) *Active Professional Development*
 - 🇫🇷 **French:** Elementary (Basic Reading & Comprehension)
 - 🇨🇳 **Chinese:** Beginner (Currently Learning)
 
