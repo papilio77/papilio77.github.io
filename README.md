@@ -1,7 +1,5 @@
 # Hi, I'm Serkan Eken
-
-
-**Industrial Engineer | Strategy & Operations Enthusiast**
+**Industrial Engineering Student | Strategy & Operations Enthusiast**
 
 Combining a high-caliber analytical foundation from **Izmir Science High School** (ranked 1,700th nationwide) with the engineering discipline of **Dokuz Eylul University**. I focus on structuring complex problems, developing data-driven strategies, and creating value on a global scale.
 
